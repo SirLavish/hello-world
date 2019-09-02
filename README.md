@@ -1,3 +1,3 @@
 # hello-world
 a place for love and creativity
-my name is Steve Williams and I'm new to GitHub
+and always a bright smile. 
